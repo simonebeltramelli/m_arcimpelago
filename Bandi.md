@@ -8,6 +8,9 @@ Compilare correttamente il modulo et inviarlo entro i termini pregressi.
 
 [Bando Lampredotto](#Bando-Lampredotto)
 
+[#Sbandati e sbarcollanti de Strasbourg](#Sbandati-e-sbarcollanti-de-Strasbourg)
+
+
 
 (#BANDO-DI-CONCORSO-PER-ILLUSTRATORI-DE-AMARI)
 #### BANDO DI CONCORSO PER ILLUSTRATORI DE AMARI
@@ -112,7 +115,9 @@ Amacatevi quindi a Itaca l'un l'altro e se proprio non puotete andare a Itaca
 Consigliamo otto tonnellate di spiaggia in casa e coricarsi direttamente sulla spiaggia.
 
 Sempre ricaricaste lo cellulare raramente lo cerbello
-Sbandati e sbarcollanti  de Strasbourg:La Misura della Tazza del Cesso è colma!
+
+(#Sbandati-e-sbarcollanti-de-Strasbourg)
+#### Sbandati e sbarcollanti  de Strasbourg:La Misura della Tazza del Cesso è colma!
 L'Europa legifera pe' fermare lo novo scempio continentale: il "Cessing",
 da Hamburgo a Milazzo non se trova un cesso libero,
 tutti chiusi a brache calate a ciattà su facebuc mentre i altri aspetta fuori
@@ -131,14 +136,16 @@ debe sofort pagaren Zwanzigi sesterzie im auro.
 Pensé vous a die Herren que dehor de la toilette utilise son propre schue cum wäre ein pissoir.
 Grosse Problem ist wenn de retour a la maison la Frau, comprend che Du hast in der neuen Toga Urinaten. Kaiser Amarissimi."
 Offre Jean-Claude
-Bando di ritiro.
+
+#### Bando di ritiro.
 Vince il disimpegno e chi si ritira più prima.
 Chi non si iscrive per almeno ventanni vola diritto nella all Hall of Fame. Chi ha il calcetto il giovedì é in posizione di vantaggio, chi non ci ha mai creduto ha già un piede nella gloria. 
 Chi esagita disperato co urli e insulta fra la folla é già mezzo santo. 
 Chi si ritira ancora prima di iniziare si ritiri prima di iscriversi risparmierà tempo.
 L'assenza come giustificazione.
 Nel paradigma populista basta scagliare una pietra per essere senza peccato.
-Guarire LA malattia da CATTA: BANDO INterConTinenTale.
+
+#### Guarire LA malattia da CATTA: BANDO INterConTinenTale.
 Fate Presto!
 Cercasi su scaracchiere intercontintale et spazio temporale 
 GUARITORE/SANTONE che estrapoli in via definitiva CATTA dalla sua malattia mentale.
@@ -153,7 +160,8 @@ La giuria indica anche tribu' di radice matriarcale biondemorerosse come possibi
 Bevande a base di Soya e birre escluse per cause mediche.
 Fate Presto!
 tetrarchia d’autunnisti pella rivoluzione d’ottobre(che fe caldo)
-Bando della Rivoluzione dottobre!!!
+
+#### Bando della Rivoluzione dottobre!!!
 BISOGNA VOTARE o SI o NO! Decidete nobis.
 Qui il foglietto informativo:
 
@@ -185,7 +193,8 @@ Ch'ipppoi non potresse dire che scoverchiamo che la terra è un grande filo mono
 Allora, dico che la Terra ha la forma de scatola di fagioli, como diceva Anassimandro,perché sospesa nel mezzo dell  nulla tra spinte  ugualmente at ella indifferenti.
 Per Fortuna hanni fatto le spiagge colle palme che dopo è tutto molto bello.
 Et alle scholari ch'e s'addormenta la campanella li fulmini
-BANDA LUCIA, pensaci tu.
+
+#### BANDA LUCIA, pensaci tu.
 Oggi si festeggia "TUTTIGIORNI" santo patronimo dei minuti che scorrino.
 Co su 7 apostoli nani sabatolo, domencolo, lundio e cosi via
 diffonde nel reame le habitudini sane e robuste propie de' genti sane e robuste.
@@ -224,7 +233,8 @@ La slot non discrimina, non necessita di banda larga e nemmanco connessione indr
 
 Certi di interpretare a modino il volere dei padri fondatori accettiamo solo pezze fino al cinquant’euros e non si da resto.
 Grazie
-bando Contra Cinture,cintole et bratelle:
+
+#### bando Contra Cinture,cintole et bratelle:
 cinghiali di trasmissione del grande controllo,caporalesse de brache calanti o centurie de kastita kamasutria
 Cittadino,smettila dii cercà gli occhiali che so sempre sul naso è la cintola che hai veramente trascurato!
 Haviete mai notà che guarda caso pelle mutande nun vè cinture ma solo abbraccio elastico?
@@ -240,7 +250,8 @@ Gonne gonne a ancora gonne e per le brache soprattutto a bottone tranquilli non 
 
 Il cane che si morde la coda il comanco serpente invornito che in cerchio s'avvolge altro non sono che altregorie del podere.
 aureola
-Bando ingiuntivo di smarrimento aureola.
+
+#### Bando ingiuntivo di smarrimento aureola.
 Addi’ Odierno smarrita in loco Selva di Pescarola l’Aureola di 
  Marinella Restituitela alla illegittima proprietaria al piu’ priesso che la chete del bonvivere domestico è sotto minaccia.
 E’ un’areola a forma di ghepiera nera co pizzi dorati.
@@ -251,7 +262,8 @@ Addi’ Odierno (ma qualche minuto dopo) il bando viene corretto:
 La legittima intestataria del mal di testa dice che colla Areola è dipartuta anco la migragna. Ora sebbene abbiamo informazioni che sia stata trafugata in provinzie langobarde faremo conto di nulla, che farne poi dunque di un aureola tagliata a misura di santezza?Non sapremmo dobe colocarla.
 In somma ite co st'areole, ma con scioltezza.
 amore
-Bando D'amore a passo di Tango al Bergamotto, rivoletto d'anice e cannella et 
+
+#### Bando D'amore a passo di Tango al Bergamotto, rivoletto d'anice e cannella et 
 sandalo de legno De Foresta Amazzonica:
 
 Il ministero dei Sensi preso alla sprovvista dall emergenza asociale.ormonale sia guelfa che ghibellina 
@@ -288,7 +300,8 @@ Ma in onore dell amore e della non violenzia allometteremo a MelanZano di ripitt
 Requisiti essenziali pelle posizioni sono colori propri da casa
 E cappellino adatto allo graffittismo.
 Costituisce titolo preferenziale il Tip Tap e pennellizzazione vellutata ma decisa.
-BANDO MARITTIMO
+
+#### BANDO MARITTIMO
 SuaMaestàNettuno in persona nunzia Vobbis lo imperdibile Bando marino tanto atteso:
 Pel viaggio inaugurale della Barca Ammiraglia SUAN UNDERFüFI (stupore!).
 Destinatio Isole Fiji!
@@ -313,7 +326,7 @@ Pe i cambusieri di stiva so richieste le stringenti abilità de:
 Sete tutti invitati,nuvole incluse. 
 PS. Si ringrazia il signor Beato di Paterno' per aver accettato vecchi ricordi dimenticati in cambio della SUAN UNDERFüFI.
  
-Bando a contenimento dell'incertezza de tempi moderni.
+#### Bando a contenimento dell'incertezza de tempi moderni.
 Invito a festa! (co trucco annesso) affisso alle bacheche popolari.
 "Popolo, Bon 2 Dicembre!
 Non temiate l'incertezza dello futuro cangiante e di ello presente che muta volto e mese e pure anno.
@@ -337,7 +350,7 @@ Rispetta le gerarchie del tempo,popolo minuto, se eri ganzo t'avrebbi chiamato p
 Crodino, 2 Dicembre
 Lo Principe
 
-bando dentro o fuori.
+#### bando dentro o fuori.
 CoEchementre cielo chiede l'Oropa,linghilterra citta-stato cerca di rientrare dalla finestra sul cortile.
 Habbiamo lavorat duro avresse detto gianclodio sgranocchiando nocciolini alla pannocchia
 Ma JCJunker fiducioso el dise che il lattaio era chiuso ma poi riapre e il negoziato prosegue.
@@ -366,7 +379,7 @@ non è tenuto a mostrare agli spettattori il suo film, la pellicola è segreta.
 Cielo Chiede l'Europa.
 alles Klar wunderbar, ciao kore.
 
-Bando Liutprando: vedere pe riflesso de no specchio e no faccia ad facciam no est reato.
+#### Bando Liutprando: vedere pe riflesso de no specchio e no faccia ad facciam no est reato.
 Fatti li fatti tuoi, O'Bella, ora vogliono  pure mettere la museruola alla trasparenza e travesti' i fatti da misfatti.
 Povero Junkerio in qv'esto mondo di spioni e celluladri
 e' ricaduto naltravolta d'inta sta storia del virotappo.
@@ -386,7 +399,8 @@ sia consiglia de prendere timo euchessina e maggiorana
 invece de accusare Jan Claude.
 
 siempre a vestra despotitione
-Bando Prima Classe
+
+#### Bando Prima Classe
 Dear Guest,
 sei stanco di esse' l'ultima pedina del presepio accanto al 
 portapecoreinspalle e il comparsa da presepi?
@@ -414,7 +428,7 @@ Ai controversi che voteno contro al prinzipe il voto valga in negativo e si auto
 il voto astenuto, ça va sans dire, e' da interpretarsi come , si ovviamente in favore al principe.
 
 
-Bando contra biglietti Multi Corse.
+#### Bando contra biglietti Multi Corse.
 Struggente infinita  e sublime
 Il Destino Cestino  den biglietto scaduto.
 sfinita la funzione
@@ -440,7 +454,7 @@ la tsnsione del conto alla rovescia.
 Biietto candido terra incognita locus amoenus
 
 
-Bando DoMilDiziotto
+#### Bando DoMilDiziotto
 Scappato de casa co direttiva immediata l'anno 2017 si precisa immediatamente
 un 2018 di almeno 365 giorni e a tempo indeterminato , ma sereno variabile
 astenersi aquazzoni de lunga durata.
@@ -461,7 +475,7 @@ al di sotto dei 24 mesi,ridurremo cosi la disoccupazione, stampando piu calendar
 -sorriso e pelo lungo, va bene anco a pelo corto ma almeno un sorriso a 365 denti e commeglio pure co pane.
 Astenersi mercenari e favoriti teodofferi che voglino passare ai anni a venire una fiamma den mondo ne meglio ne peggio ma bello, molto piu bello.
 
-Bando Arcangelo.
+#### Bando Arcangelo.
 Il Ministero dei Arcangeli corra a ripari, mancano 9 mesi all'elezioni e Maria ha a ricevere l'annunciazione de plicchi elettorali.
 Campa cavallo ormai i mesi  diventa settimane 9 e 1/2 e l'Arcangelo ancor non si vede, per Giove.
 
@@ -484,7 +498,7 @@ Pena nessuna, tanto il sistema vigente li premia, fino a che il sistema non gli 
 
 
 
-Fünfzi fünzi
+#### Fünfzi fünzi
 Eccolo!
 Abolite i Bandi non servono piu', arriva il Partito che sbanchera' il Banco imbiancato.
 Essi Chiamera' 
@@ -513,7 +527,7 @@ manca solo le ciabatte di velluto.
 Poi se proprio proprio a Voghera s'incazzano, gettiamo l asso e il tresette
  Abolizione della polvere in casa della stiratura.
 
-Salbando capra e cavoli.
+#### Salbando capra e cavoli.
 STOP!!!! QUI C'è LA LEGGE E NON L'INGANNO! ECCO CHE IL POTERE, QUELLO BUONO ALLE MANDORLE, PROVVEDE A RIMEDIARE AI GUASTI DELLA STORIA. QUANDO è LIBERO, IL POTERE CREA RICREAZIONE! BASTA COI SOLITI CAVILLI, BASTA CON LA SOLITA RITUALITà, BASTA CON LE RIFORME! ECCO IL BANDO DEI BANDI CHE SISTEMA OGNI COSA NEL GRAN MARE DELLE ELEZIONI E DELLE POLTRONE GALLEGGIANTI. QUI C'è SCRITTO TUTTO Ciò CHE SERVE PER VIVERE DA CITTADINI E NON DA SCHIAVI. ATTENERSI ALLE DISPOSIZIONI, OGNI ABUSO SARà PREMIATO. (OCCHIO AL BABILONIO II)
 SIMONE BELTRAMELLI (PINXIT)
 Mancano tremila anni all'appuntamento elettorale eppure il tempo per preparare l'inciucio sembra non bastare mai.
@@ -542,7 +556,7 @@ Comera comera quella del silenzio dell Innocenti? Tutto falso co sto sistema mon
 hamo sistemato e capre e cavoli, un etereo silenzio sulla Buvette dove i cavoli so diventati cavolfiori.
 E che si prosegua la retta via coerente degli itttiti o I o T, poche storie
 
-Papyrusdivide
+#### Papyrusdivide
 ONDE RISOLVERE UNA VOLTA PER TUTTE L'ANNOSA QUESTIONE DELLA CARTA STAMPATA CHE CI RINCOGLIONISCE DAI TEMPI DI DICKENS, ECCO UN BANDO TESO ALLA DI-- (NON SI CAPISCE BENE QUESTA...) GIAZIONE POLIMORFICA ASSENTE PRESBITERA SOLVENTE TALVOLTA. POSTI DI LAVORO PER GIOVANI SENZA FUTURO MA DI ELEVATA QUALITà. RICCA RICOMPENSA. E FINIAMOLA CO STO CAZZO DI PIOMBO.
 AAA editore titolista, mas o meno, cercansi per normative europee sviluppo politiche comunitarie sul tema digital divide e "Legge-Muro per contrastaire l'insostenibile digitaldivide e rispedire i lettori oltre il PApirusDiViDe, che credevamo finito dai penosi tempi di C.Dickens e invece ancora qua con l' incatramata anti ecosostenibile pagina scritta piena di piombo d inchiostro" .
 
