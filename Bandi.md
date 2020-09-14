@@ -1,7 +1,11 @@
-** Bandi di Concorso	
+### Bandi di Concorso	
 Promuovere i talenti ma anco i buoni a nulla, c’è posto per tutti.
 Compilare correttamente il modulo et inviarlo entro i termini pregressi.
-* BANDO DI CONCORSO PER ILLUSTRATORI DE AMARI.
+
+[BANDO DI CONCORSO PER ILLUSTRATORI DE AMARI](#BANDO-DI-CONCORSO-PER-ILLUSTRATORI-DE-AMARI)
+BANDO DI CONCORSO PER ILLUSTRATORI DE AMARI
+BANDO-DI-CONCORSO-PER-ILLUSTRATORI-DE-AMARI
+(#BANDO-DI-CONCORSO-PER-ILLUSTRATORI-DE-AMARI)
 Per festeggiare il 150-mo compleanno DeL famoso amaro "HARISTOCRRATICO" 
 il Commendatore Lucia ha deciso di abbandonare il tradizionale logo a Caballo e co baffi e passare ad una mise più  aderente ad un consumatore dinamico che cambia melafonino e gusti come le donne umore epperoche' tuttora arrancano colla digestione de ganzi pranzi estivi.
 
