@@ -6,8 +6,7 @@ Compilare correttamente il modulo et inviarlo entro i termini pregressi.
 
 [Bando no-Como’](#bando-no-como)
 
-[Bando Lampredotto]
-(#Bando-Lampredotto)
+[Bando Lampredotto](#Bando-Lampredotto)
 
 
 (#BANDO-DI-CONCORSO-PER-ILLUSTRATORI-DE-AMARI)
