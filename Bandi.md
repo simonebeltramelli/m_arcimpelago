@@ -6,6 +6,9 @@ Compilare correttamente il modulo et inviarlo entro i termini pregressi.
 
 [Bando no-Como’](#bando-no-como)
 
+[Bando Lampredotto]
+(#Bando-Lampredotto)
+
 
 (#BANDO-DI-CONCORSO-PER-ILLUSTRATORI-DE-AMARI)
 #### BANDO DI CONCORSO PER ILLUSTRATORI DE AMARI
@@ -68,7 +71,9 @@ Pensili da cucina,unti e bisunti staccarli a palate giu' dai muri.
 Co effetto inmediato e coevo staccare dalla cucina tutti i pensili di terra e di maremosso.
 Pure se sono comodini hawaiani, via tutto.
 Che non si veda piu' un comodino in giro!
-Bando Lampredotto
+
+(#Bando-Lampredotto)
+#### Bando Lampredotto
 La mancanza d'astrattezza distingue l'atto amministrativo generale dallo normativo possiediendo tale carattere.
 L'orribile Palazzo di Giustizia di Firenze verrà coverto da un furgoncino da Lampredotto (a panino o a vaschetta).
 
