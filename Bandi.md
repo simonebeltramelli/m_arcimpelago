@@ -3,9 +3,11 @@ Promuovere i talenti ma anco i buoni a nulla, c’è posto per tutti.
 Compilare correttamente il modulo et inviarlo entro i termini pregressi.
 
 [BANDO DI CONCORSO PER ILLUSTRATORI DE AMARI](#BANDO-DI-CONCORSO-PER-ILLUSTRATORI-DE-AMARI)
-BANDO DI CONCORSO PER ILLUSTRATORI DE AMARI
-BANDO-DI-CONCORSO-PER-ILLUSTRATORI-DE-AMARI
+[Bando no-Como’](#Bando-no-Como)
+
+
 (#BANDO-DI-CONCORSO-PER-ILLUSTRATORI-DE-AMARI)
+* BANDO DI CONCORSO PER ILLUSTRATORI DE AMARI
 Per festeggiare il 150-mo compleanno DeL famoso amaro "HARISTOCRRATICO" 
 il Commendatore Lucia ha deciso di abbandonare il tradizionale logo a Caballo e co baffi e passare ad una mise più  aderente ad un consumatore dinamico che cambia melafonino e gusti come le donne umore epperoche' tuttora arrancano colla digestione de ganzi pranzi estivi.
 
@@ -55,7 +57,9 @@ sulla base di maiale in mano.
 
 Insomma siamo una penisola riunita dal maiale , maialeddu e pure gattopardo in sottoveste de squalo.
 Benvenuti a cena nella repubblica dei sorci verdi al porco di mare
-* Bando no-Como’
+
+(#Bando-no-Como)
+ * Bando no-Como’
 Bando No-Como' e simil-Pensiliame:
 La tristezza buttarla nel comodino e poi gettare l'infausto nell'indifferenziata del dimentico.
 Il Comodino ancora crede che torno! vatte a retro Santàna te e ai Pensilini funesti e untori.
