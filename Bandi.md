@@ -3,7 +3,8 @@ Promuovere i talenti ma anco i buoni a nulla, c’è posto per tutti.
 Compilare correttamente il modulo et inviarlo entro i termini pregressi.
 
 [BANDO DI CONCORSO PER ILLUSTRATORI DE AMARI](#BANDO-DI-CONCORSO-PER-ILLUSTRATORI-DE-AMARI)
-[Bando no-Como’](#Bando-no-Como)
+
+[Bando no-Como’](#bando-no-como)
 
 
 (#BANDO-DI-CONCORSO-PER-ILLUSTRATORI-DE-AMARI)
@@ -58,7 +59,7 @@ sulla base di maiale in mano.
 Insomma siamo una penisola riunita dal maiale , maialeddu e pure gattopardo in sottoveste de squalo.
 Benvenuti a cena nella repubblica dei sorci verdi al porco di mare
 
-(#Bando-no-Como)
+(#bando-no-como)
 #### Bando no-Como’
 Bando No-Como' e simil-Pensiliame:
 La tristezza buttarla nel comodino e poi gettare l'infausto nell'indifferenziata del dimentico.
