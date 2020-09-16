@@ -7,7 +7,7 @@
  
  [Cultura: il Roe Roll](https://github.com/simonebeltramelli/m_arcimpelago/blob/master/cultura_il_Roen_Roll.md)
 
- [direttive ministeriali e fonti del diritto](https://github.com/simonebeltramelli/m_arcimpelago/blob/master/direttive_ministeriali_e_fonti_del_diritto.md)
+ [Direttive ministeriali e fonti del diritto](https://github.com/simonebeltramelli/m_arcimpelago/blob/master/direttive_ministeriali_e_fonti_del_diritto.md)
  
  
 
