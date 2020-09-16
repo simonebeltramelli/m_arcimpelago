@@ -315,4 +315,9 @@ cene a base di nemico diippopolo.
 Attendere fino a che non cade il fico dal pero.
 E' la prima ricetta in cui si cucina il cliente al posto dell anitra.
 
-
+# CaudilloDaServer
+quer'pueblo  en armi a cinqoeStrelle assiso en el parlamiento, con colpo dicoda scavilla fora di bal Casalejo Jr. CaudilloDaServer. E scalcia Grillo a potenzial latere.
+Luci e ombre del puebelo que si e' fatto partito.
+Estrazione paracasuale que si trasforma non nel mostro indicato a Casta ma nella paranormalita del paranormale. 
+ No terribile mostro da sgozzare con gameover e titoli di coda ma limosa bestiale creatura a forma di realta richiedente l'inimmaginabile: El confronto  colla realita invece che un istanza privata di viedogame che si pol interromper a post alterni.
+ 16.9.20
