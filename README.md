@@ -9,6 +9,12 @@
 
  [Direttive ministeriali e fonti del diritto](https://github.com/simonebeltramelli/m_arcimpelago/blob/master/direttive_ministeriali_e_fonti_del_diritto.md)
  
+ [Consigli](https://github.com/simonebeltramelli/m_arcimpelago/blob/master/consigli.md)
+ 
+ [Anagnini politica](https://github.com/simonebeltramelli/m_arcimpelago/blob/master/anagnini_politica.md)
+ 
+ 
+ 
  
 
  
